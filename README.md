@@ -10,4 +10,4 @@
 Зачем это приложение, если такое уже есть? Я не нашел, проще написать самому ;)
 
 
-![Скрин](https://yadi.sk/i/NkoAUVt4QRnWmA.png)
+![Скрин](https://wmpics.pics/di-UDII.png)
